@@ -45,3 +45,6 @@
     * The More Fearless (Taylor's Version) Chapter
 * Eyes Open (Taylor's Version)
     * The More Red (Taylor's Version) Chapter
+* Christmas Must Be Something More
+    * Track 5 of The Taylor Swift Holiday Collection
+        * Only song by Swift on Collection
